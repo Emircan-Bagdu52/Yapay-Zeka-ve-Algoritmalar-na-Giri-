@@ -1,0 +1,1 @@
+# Yapay-Zeka-ve-Algoritmalar-na-Giri-
