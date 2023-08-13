@@ -1,1 +1,1 @@
-# Yapay-Zeka-ve-Algoritmalar-na-Giri-
+# Yapay-Zeka-ve-Algoritmalarına-Giriş
